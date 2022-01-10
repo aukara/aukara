@@ -7,7 +7,7 @@ I know how to code in:
   -  C
 
 
-Discord - auk#1123
-Twitter - @aukayaya
+Discord - auk#1123<br>
+Twitter - [@aukayaya](https://twitter.com/aukayaya)
 
 
